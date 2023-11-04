@@ -1,0 +1,1 @@
+https://note.com/shift_tech/n/n181cf5ed2e40
